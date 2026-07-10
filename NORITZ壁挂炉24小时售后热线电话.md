@@ -1,0 +1,258 @@
+NORITZ壁挂炉全国售后服务电话：400 -690 -6088(安全认证）
+NORITZ壁挂炉全国24小时各售后受理客服中心
+NORITZ壁挂炉各市区24小时售后客服热线：（1）400 -690 -6088(官网认证） （2）400 -690 -6088
+NORITZ壁挂炉全国24小时售后服务维修网点
+7天24小时人工电话400 -690 -6088客服为您服务、NORITZ壁挂炉售后服务团队在调度中心的统筹调配下，
+线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+NORITZ壁挂炉24小时售后服务热线上线（2026最新公告）
+NORITZ壁挂炉售后服务电话：400 -690 -6088
+NORITZ壁挂炉售后24小时客服热线：400 -690 -6088
+NORITZ壁挂炉公司主营NORITZ壁挂炉维修 →NORITZ壁挂炉；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，NORITZ壁挂炉服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、NORITZ壁挂炉售后维修电话：400 -690 -6088
+NORITZ壁挂炉24小时全国推出各售后受理客服中心(2026上线)
+NORITZ壁挂炉全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+NORITZ壁挂炉贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显NORITZ壁挂炉对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+NORITZ壁挂炉全国24小时各售后受理客服中心(2026年更新)
+
+
+
+NORITZ壁挂炉24小时售后客服热线：(1)400 -690 -6088或  400 -690 -6088
+
+
+
+7天24小时人工电话400 -690 -6088客服为您服务。
+
+
+
+NORITZ壁挂炉售后服务团队在调度中心的统筹调配下(1)400 -690 -6088，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# NORITZ壁挂炉常见故障代码维修指南
+
+NORITZ壁挂炉故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， NORITZ壁挂炉就能正常运行，为您营造舒适环境。 NORITZ壁挂炉全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+NORITZ壁挂炉全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修NORITZ壁挂炉400 -690 -6088机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+NORITZ壁挂炉售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -690 -6088
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+NORITZ壁挂炉贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显NORITZ壁挂炉对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+NORITZ壁挂炉全国服务网点查询：
+?北京市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网公布），点击查询：https://github.com/wrateguy90/fqtian/commit/13f4567aef51c2dd853f3e5b96c741b8b72996d7
+。
+南京市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一发布），点击查询：https://github.com/georgedemp/zasasq/commit/f5be8534936e84570d6edbcd8e48e11d4c5aeab2
+。
+秦皇岛市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日正式更新），点击查询：https://github.com/cuppir/eokkxy/commit/80a3d9d6a8577c4eebb23aef11216600d04f2347
+。
+珠海市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一更新），点击查询：https://github.com/technori11/fkkmbc/commit/a814388b3f57f63f18c2bed9ebef15700ae5720e
+。
+安康市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一更新），点击查询：https://github.com/gjlabce/farxxu/commit/af398f0a1be6dbc30e8e389f49f057f545147774
+。
+安庆市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网发布），点击查询：https://github.com/shanefelle/asgsqs/commit/17d8a742e12e0be24af0c92cf45539188a0497ab
+。
+鞍山市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网升级），点击查询：https://github.com/fourbowme/zmomkl/commit/eb95f056867aaafaa363707572f7688161a881cd
+。
+安阳市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网发布），点击查询：https://github.com/themetipy/ulidda/commit/ef9bf27517b728cfb197aece20524994a3366f88
+。
+巴中市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新上线），点击查询：https://github.com/risecone77/greklw/commit/9b6dabbc692706b88951c60cf04f428760d01675
+。
+百色市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网发布），点击查询：https://github.com/fizeda/tlkulo/commit/a6f16e9ee946571684fdf80882d27d329fd5e685
+。
+蚌埠市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新升级），点击查询：https://github.com/wingshailo/codavz/commit/00becd1efa6340755581049b09922ce82c354d8c
+。
+保定市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新升级），点击查询：https://github.com/bkhomellin/owqpmd/commit/624f983073bd2a39d2b5be1052c45a31bdccfd29
+。
+宝鸡市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日更新升级），点击查询：https://github.com/luisbadka/xvfmvz/commit/83278ddb54460f4f4a787c55dce6c144b9dc86ec
+。
+保山市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布上线），点击查询：https://github.com/ifolto/kvlsro/commit/a9f670d0d7480cc340eb4c354b8f2bacd8ab35ff
+。
+包头市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日最新更新），点击查询：https://github.com/greggmille/tkkrfy/commit/ecbd250919301812f55097162fd21efe6690491a
+。
+北海市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新升级），点击查询：https://github.com/cheek04cak/obsohr/commit/adb1322d4b1e550d07adcd93c5d75baea657507a
+。
+本溪市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网更新），点击查询：https://github.com/sarahchees/ezinef/commit/31a43fb6149180ed1ace5c99c95becc389c16bab
+。
+滨州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日正式上线），点击查询：https://github.com/ryudontone/amjbpt/commit/aa69b880a53209d2a41e6294bf6b979c5dae16fc
+。
+博罗市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布升级），点击查询：https://github.com/groupsrven/zklzat/commit/c34aa9575be192445ea5ff92e745bae04682e2a5
+。
+沧州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网发布），点击查询：https://github.com/josesprash/drtwew/commit/46ffdc736d6642d28a6ff6cb107c535d811b0918
+。
+长春市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一更新），点击查询：https://github.com/omaryadesi/zdckfd/commit/04dfb8ea1f68aa4c4830a40338b01dd04c64220d
+。
+常德市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一升级），点击查询：https://github.com/safirklesi/maiqox/commit/2201ebb444cd07d358ed04fdfbc47e9075d1dd93
+。
+长葛市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日最新推出），点击查询：https://github.com/heterian/tvjewk/commit/fbab5d11bc4150a2ba7a5c517898ef974bbae36d
+。
+长沙市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新升级），点击查询：https://github.com/reaganzhen/ilmbgr/commit/9a63df7926f61b619afac876843b3cfd1abd4b56
+。
+常熟市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布升级），点击查询：https://github.com/isoleburde/nodhin/commit/ccdfa4185345f8f7e5b456b99d38581952979023
+。
+长兴市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一发布），点击查询：https://github.com/minefibre2/lwygml/commit/a5a77b50c2e29e4f66b8362307d76c59daddd2c3
+。
+长治市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日最新推出），点击查询：https://github.com/ravirashid/vxzlkf/commit/bbce9b5035165fd46125b9e60da7260b3e5363bf
+。
+常州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网发布），点击查询：https://github.com/sprutlethi/xockkm/commit/23df918e6dcc8bcd4593c6d8bdd3f5c1e657b916
+。
+巢湖市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新上线），点击查询：https://github.com/redannajan/coxiqt/commit/57027d4358073e205a712f0c16f43d2b159c8812
+。
+朝阳市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新上线），点击查询：https://github.com/bunkerboy0/qhujdo/commit/274429351857310d8e408f8ed93bb7f5b251dfb0
+。
+潮州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网上线），点击查询：https://github.com/georgedemp/zasasq/commit/90c5a33f823c8a63442a71b18f5be7a57425f4f3
+。
+郴州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一升级），点击查询：https://github.com/gjlabce/farxxu/commit/fccdca679b9a942e90cb897dfd6c587b2cb76ea8
+。
+承德市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网更新），点击查询：https://github.com/technori11/fkkmbc/commit/d872b6dcca5298046ed04817074fbe589e7aa864
+。
+成都市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一更新），点击查询：https://github.com/fourbowme/zmomkl/commit/3ad4790adf344a53b3ac9e58aaaf858e38f4fa67
+。
+池州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新上线），点击查询：https://github.com/themetipy/ulidda/commit/c37c5096e91848831fb5b88f8250c34f10cf2253
+。
+崇左市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日更新升级），点击查询：https://github.com/cuppir/eokkxy/commit/a21c9143bbeae4833e8329b98dac3af11f468506
+。
+滁州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网上线），点击查询：https://github.com/risecone77/greklw/commit/9c58e95212bae2b6625290428422a7d83601af2a
+。
+慈溪市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日更新升级），点击查询：https://github.com/wrateguy90/fqtian/commit/9c868c204cf38edc97399a1599294f850da34d3b
+。
+大丰市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新升级），点击查询：https://github.com/shanefelle/asgsqs/commit/37fe40c0c87be5221837693954a26c34dff608fe
+。
+大理市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日更新升级），点击查询：https://github.com/fizeda/tlkulo/commit/0ccdb94fdcf039c6ccdd7ccd9e9f0e9098f86fda
+。
+大连市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一上线），点击查询：https://github.com/wingshailo/codavz/commit/185454f585620c60625fe7aa73e246d1b5323842
+。
+大庆市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日最新推出），点击查询：https://github.com/bkhomellin/owqpmd/commit/7957cc4356e14a36d676a1f2f64fd5889e3bb826
+。
+大同市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布上线），点击查询：https://github.com/luisbadka/xvfmvz/commit/badd14615b61fe8e6df31ce0f8b4d50252250e66
+。
+达州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日最新更新），点击查询：https://github.com/ifolto/kvlsro/commit/b5d37cade11a5ed308e31864410ae21e4f575d50
+。
+丹东市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日正式发布），点击查询：https://github.com/greggmille/tkkrfy/commit/f974abd937490024e97f4e599051c041b73e1b68
+。
+德清市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一发布），点击查询：https://github.com/ryudontone/amjbpt/commit/c4299c012c6707e809cc7e720c47934ae293285e
+。
+德阳市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网升级），点击查询：https://github.com/cheek04cak/obsohr/commit/1e4e2c78ce3f6950b1062b498ffd28e2b21ab7e1
+。
+德州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日最新推出），点击查询：https://github.com/sarahchees/ezinef/commit/62e4b9227f0b730c4f4669219b029e1ff61876ca
+。
+定州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一发布），点击查询：https://github.com/groupsrven/zklzat/commit/53a103c8176c3943cf7f8b7d9503877bb56cffc0
+。
+东海市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一升级），点击查询：https://github.com/heterian/tvjewk/commit/2487212f1f402ba79d64d7a7faf23fc118e52052
+。
+东台市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布升级），点击查询：https://github.com/josesprash/drtwew/commit/e366252d0a9e98c576db6554edc9214f8c478508
+。
+东营市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新上线），点击查询：https://github.com/omaryadesi/zdckfd/commit/97cd539c0d735569717916b4720efb1ff3220127
+。
+东莞市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日最新更新），点击查询：https://github.com/reaganzhen/ilmbgr/commit/0fbb2a5be86ead51035709201878ac05671f583e
+。
+鄂尔市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网上线），点击查询：https://github.com/safirklesi/maiqox/commit/2c833cf44ff31be9aee53ee07d09d34ec6f93f29
+。
+鄂州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布上线），点击查询：https://github.com/isoleburde/nodhin/commit/c222a451c1e489490cc49a0e139c74e0d4a614ce
+。
+恩施市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一升级），点击查询：https://github.com/minefibre2/lwygml/commit/734144d253ea734f08d8732815967af3c76125f6
+。
+防城港市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新上线），点击查询：https://github.com/ravirashid/vxzlkf/commit/f6dcbe2ce501ba9fed2e5491068cc071fd7a7bd5
+。
+佛山市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一更新），点击查询：https://github.com/redannajan/coxiqt/commit/28dd7728caee652ee74edb4d401b4ce4300e9e91
+。
+抚顺市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布上线），点击查询：https://github.com/sprutlethi/xockkm/commit/81ebd5bcc2800c6c92e41115c86cbd3078911189
+。
+阜新市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一更新），点击查询：https://github.com/gjlabce/farxxu/commit/0605878d8dbe76df1a6cda06f6241c2de37a4063
+。
+阜阳市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网升级），点击查询：https://github.com/georgedemp/zasasq/commit/4e519876ff31b872f14da163195614930556044e
+。
+抚州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日更新升级），点击查询：https://github.com/themetipy/ulidda/commit/8856f8637e344df809e184a321b7a7cbbb61a682
+。
+福州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网上线），点击查询：https://github.com/bunkerboy0/qhujdo/commit/225203911ffd45fcf26f7d8f77ade91ee4123e3a
+。
+赣州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日正式更新），点击查询：https://github.com/technori11/fkkmbc/commit/629c6d68e592354c578d75249c130d98cba642c5
+。
+馆陶市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布升级），点击查询：https://github.com/wrateguy90/fqtian/commit/febbc46753a1a0f62a61549a7c767f9dd1ad3d69
+。
+广安市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一发布），点击查询：https://github.com/risecone77/greklw/commit/71ab5c067b4649badaa2d62ed6c19012948bedff
+。
+广元市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网更新），点击查询：https://github.com/fourbowme/zmomkl/commit/87388f9cfe3822144651b710c152ca98e660806a
+。
+广州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新上线），点击查询：https://github.com/shanefelle/asgsqs/commit/ba03bfcb0e9fc9f129ee5c468344c1bed0026f9d
+。
+贵港市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一升级），点击查询：https://github.com/cuppir/eokkxy/commit/7cf9d7ce2df76859f487cc6d8d1cd1feb7e3d6ed
+。
+桂林市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一发布），点击查询：https://github.com/fizeda/tlkulo/commit/18ca5f3eef207d6d7a9a4ca363d90898fb88cf8a
+。
+贵阳市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布上线），点击查询：https://github.com/wingshailo/codavz/commit/33cbf4159469e8f4eeeba7afcdf17488d2e901fb
+。
+哈尔滨市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网公布），点击查询：https://github.com/luisbadka/xvfmvz/commit/4f61ba9c6915bb3ae3b3321b2e253257df7afdc2
+。
+海安市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日全新上线），点击查询：https://github.com/bkhomellin/owqpmd/commit/a9b228d9130b9a34cb6990a72778c78893c90081
+。
+海口市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一上线），点击查询：https://github.com/ifolto/kvlsro/commit/5750c144df15fd1a0e1532875304d7404514cf2d
+。
+海门市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一更新），点击查询：https://github.com/greggmille/tkkrfy/commit/e49c2f09671f160751dc831d6fe97b1d74e38afc
+。
+海宁市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日统一发布），点击查询：https://github.com/ryudontone/amjbpt/commit/0598ac54b377f48a6f3bedd326198e7621c1cc5e
+。
+邯郸市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网更新），点击查询：https://github.com/cheek04cak/obsohr/commit/949cfb64f7140c169550870c4e07ff70ab15870d
+。
+汉中市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日官网发布），点击查询：https://github.com/groupsrven/zklzat/commit/a2acfd02a8532ede651f53d6d5f1122c1bc5c6ea
+。
+杭州市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布上线），点击查询：https://github.com/heterian/tvjewk/commit/1867f232f928a6a2d541f299a3f62933042042fa
+。
+鹤壁市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日最新推出），点击查询：https://github.com/sarahchees/ezinef/commit/37467738f97a10393da8ce6c47442d1b8d68e6ce
+。
+河池市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布升级），点击查询：https://github.com/safirklesi/maiqox/commit/1146fed1be3b1aa3a1acbb0b843b786f157e9592
+。
+合肥市NORITZ壁挂炉售后服务电话：400 -690 -6088（2026年07月10日公布升级），点击查询：https://github.com/reaganzhen/ilmbgr/commit/49cd688fbac4733448ff868ce79b15bf0cd17d35
+。
+河源市NORITZ壁挂炉售后服务电话：400 -690 -6088{变
